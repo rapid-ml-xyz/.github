@@ -1,5 +1,5 @@
-# Welcome to Rapid ML
+# Rapid ML
 
 ***
 
-🚀🚀🚀 Launching soon! 🚀🚀🚀
+### 🚀🚀🚀 Launching soon 🚀🚀🚀
